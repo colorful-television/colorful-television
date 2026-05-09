@@ -1,8 +1,3 @@
-
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/d80c5258-6f01-417d-aa88-86b293ed315d">
-</div>
-
 $${\color{#edbec0}\text{⠀︵⠀avi.golfish ⠀◌Ⳋ𝅄 }}$$
 
 <div align="center">
@@ -20,8 +15,11 @@ $${\color{#fe8e9a}\text{mostly on 𝙨𝙖𝙛𝙚 𝙨𝙥𝙖𝙣𝙞𝙨𝙝/
 $${\color{#edbec0}\text{𝚌+𝚑 𝚏𝚛𝚎𝚎𝚕𝚢 , 𝐃𝐎𝐍'𝐓 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜!}}$$
 
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/9d535975-9b32-4d1e-bec3-08ae73dc0e1c">
+  <img src="https://github.com/user-attachments/assets/3e0c1bee-6d3f-4deb-be4b-bbe2f8b16352">
 </div>
+
+$${\color{#ddf9e4}\text{static miku wants YOU}}$$
+
 
 
 
