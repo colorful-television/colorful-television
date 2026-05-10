@@ -1,24 +1,37 @@
-$${\color{#edbec0}\text{⠀︵⠀avi.golfish ⠀◌Ⳋ𝅄 }}$$
 
+<p align="center">
+<img width="736" height="736" alt="27 sin título_20260510152428" src="https://github.com/user-attachments/assets/f3d405b4-7d4c-4e6b-ad4f-914f6223a227" />
+
+</p>
+
+
+
+
+$${\color{fd91e8}\text{いますぐ輪廻!! 今回も結ばれないね... }}$$
+$${\color{#fff9e5}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#f3d4ed}\text{︵ ༺
+  𓂃  any , 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬  ꕮ   }}$$
+ 
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/f4b8887a-4604-4e25-bc7b-363f27106a8a">
-</div>
 
-$${\color{#f3ec99}\text{ᯓ 𝐢𝐧𝐭 𝐟𝐫𝐞𝐞𝐥𝐲! ✩࿐ ҂ eng , spa ᴛᴀʟᴋᴇʀ з}}$$
-$${\color{#fe8e9a}\text{mostly on 𝙨𝙖𝙛𝙚 𝙨𝙥𝙖𝙣𝙞𝙨𝙝/𝙥𝙤𝙧𝙩𝙪𝙜𝙪𝙚𝙨𝙚}}$$
-
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/644b9490-427c-4a8f-8daa-3bfdf6d69976">
-</div>
+[alt account](https://github.com/plueyavi)
 
 
-$${\color{#edbec0}\text{𝚌+𝚑 𝚏𝚛𝚎𝚎𝚕𝚢 , 𝐃𝐎𝐍'𝐓 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜!}}$$
+<p align="center">
+<img width="736" alt="27 sin título_20260510153142" src="https://github.com/user-attachments/assets/f1d0caa7-a5ae-4d62-b744-b617d070c6c4" />
 
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/3e0c1bee-6d3f-4deb-be4b-bbe2f8b16352">
-</div>
+</p>
 
-$${\color{#ddf9e4}\text{static miku wants YOU}}$$
+
+$${\color{#f291cb}\text{˚⊹♡c+h allowed, most on spanish serv .𖥔 ݁}}$$
+
+
+
+$${\color{#f2cce7}\text{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$$
+ $${\color{#f2f5fc}\text{I'll add some stuff later!}}$$
+
+
+
+
 
 
 
