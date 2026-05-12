@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="736" height="736" alt="27 sin título_20260510152428" src="https://github.com/user-attachments/assets/f3d405b4-7d4c-4e6b-ad4f-914f6223a227" />
+<img width="536" alt="27 sin título_20260510152428" src="https://github.com/user-attachments/assets/f3d405b4-7d4c-4e6b-ad4f-914f6223a227" />
 
 </p>
 
@@ -17,7 +17,7 @@ $${\color{#fff9e5}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#f3d
 
 
 <p align="center">
-<img width="736" alt="27 sin título_20260510153142" src="https://github.com/user-attachments/assets/f1d0caa7-a5ae-4d62-b744-b617d070c6c4" />
+<img width="536" alt="27 sin título_20260510153142" src="https://github.com/user-attachments/assets/f1d0caa7-a5ae-4d62-b744-b617d070c6c4" />
 
 </p>
 
