@@ -26,6 +26,7 @@ $${\color{#fff9e5}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#f3d
 
 $${\color{#f291cb}\text{˚⊹♡c+h allowed, most on spanish serv .𖥔 ݁}}$$
 
+<img width="374" height="211" alt="retry-now-miku" src="https://github.com/user-attachments/assets/20a70f28-a26e-4ab2-a8fa-3d7520d9507f" />
 
 
 $${\color{#f2cce7}\text{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$$
