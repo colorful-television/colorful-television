@@ -30,8 +30,9 @@ $${\color{#f291cb}\text{˚⊹♡c+h allowed, most on spanish serv .𖥔 ݁}}$$
 
 
 $${\color{#f2cce7}\text{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$$
- $${\color{#f2f5fc}\text{I'll add some stuff later!}}$$
+ $${\color{#f2f5fc}\text{TYSM FOR MENTION!!}}$$
 
+[pt-stars](https://github.com/pt-stars)
 
 
 
