@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="498" height="283" alt="download" src="https://github.com/user-attachments/assets/d429e485-6e50-4558-84e4-d15fb24c463d" />
+<img width="283" height="283" alt="download" src="https://github.com/user-attachments/assets/d429e485-6e50-4558-84e4-d15fb24c463d" />
 
 </p>
 
@@ -17,7 +17,7 @@ $${\color{#B4E2E6}\text{ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#5B5E94}
 
 $${\color{#6F8FAE}\text{˚⊹♡c+h allowed, most on spanish serv .𖥔 ݁}}$$
 
-<img width="498" height="498" alt="download (1)" src="https://github.com/user-attachments/assets/1d7d8756-6e49-418d-9178-27389403d3ba" />
+<img width="283" height="283" alt="download (1)" src="https://github.com/user-attachments/assets/1d7d8756-6e49-418d-9178-27389403d3ba" />
 
 
 
