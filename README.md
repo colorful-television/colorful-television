@@ -1,15 +1,12 @@
 
 <p align="center">
-<img width="536" alt="27 sin título_20260510152428" src="https://github.com/user-attachments/assets/f3d405b4-7d4c-4e6b-ad4f-914f6223a227" />
+<img width="498" height="283" alt="download" src="https://github.com/user-attachments/assets/d429e485-6e50-4558-84e4-d15fb24c463d" />
 
 </p>
 
-
-
-
-$${\color{fd91e8}\text{いますぐ輪廻!! 今回も結ばれないね... }}$$
-$${\color{#fff9e5}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#f3d4ed}\text{︵ ༺
-  𓂃  any , 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬  ꕮ   }}$$
+$${\color{#5742CB}\text{𝓌𝒾𝓁𝓁 𝓎𝑜𝓊 𝙩𝙧𝙪𝙨𝙩 me?... }}$$
+$${\color{#B4E2E6}\text{ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#5B5E94}\text{︵ ༺
+  𓂃  any , 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬  !!   }}$$
  
 <div align="center">
 
@@ -18,18 +15,13 @@ $${\color{#fff9e5}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#f3d
 [atabook](https://avigolfish.atabook.org/)
 
 
-<p align="center">
-<img width="536" alt="27 sin título_20260510153142" src="https://github.com/user-attachments/assets/f1d0caa7-a5ae-4d62-b744-b617d070c6c4" />
+$${\color{#6F8FAE}\text{˚⊹♡c+h allowed, most on spanish serv .𖥔 ݁}}$$
 
-</p>
-
-
-$${\color{#f291cb}\text{˚⊹♡c+h allowed, most on spanish serv .𖥔 ݁}}$$
-
-<img width="374" height="211" alt="retry-now-miku" src="https://github.com/user-attachments/assets/20a70f28-a26e-4ab2-a8fa-3d7520d9507f" />
+<img width="498" height="498" alt="download (1)" src="https://github.com/user-attachments/assets/1d7d8756-6e49-418d-9178-27389403d3ba" />
 
 
-$${\color{#f2cce7}\text{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$$
+
+$${\color{#512051}\text{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$$
  $${\color{#f2f5fc}\text{TYSM FOR MENTION!!}}$$
 
 [pt-stars](https://github.com/pt-stars)
