@@ -13,8 +13,6 @@ $${\color{#B4E2E6}\text{ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#5B5E94}
 
 [alt account](https://github.com/plueyavi)
 ⁠.⁠✧
-[atabook](https://avigolfish.atabook.org/)
-
 
 $${\color{#6F8FAE}\text{˚⊹♡c+h allowed, most on spanish serv .𖥔 ݁}}$$
 
